@@ -1,2 +1,2 @@
 # sony-group
-cahnnel sonny
+channel sony India
